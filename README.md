@@ -1,1 +1,1 @@
-# Gambar-Teknik-
+# Gambar-Teknik Scematic
